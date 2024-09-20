@@ -12,4 +12,4 @@ I have experience working with programming languages and technologies, including
 - HTML/CSS
 - Linux
 
-[The link to my favorite meme](https://darcymagazine.com/funny-memes/)
+[K-Drama](https://in.pinterest.com/pin/698832067177820546/)
